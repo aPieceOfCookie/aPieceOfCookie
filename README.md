@@ -1,0 +1,3 @@
+- 👋 Hi, I’m @aPieceOfCookie
+- 👀 I’m interested in playing video games and learning some code skill. 
+- 📫 How to reach me : my email 473159726@qq.com
